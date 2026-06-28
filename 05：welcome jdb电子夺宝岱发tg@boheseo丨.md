@@ -1,0 +1,57 @@
+【留痕代做tg：@boheseo】welcome jdb电子夺宝【排名tg：@boheseo】【代做tg：@boheseo】welcome jdb电子夺宝〖吉祥如意〗〖好运连连〗〖隆运当头〗〖共创光辉〗篮球是另一项风靡全球的球类运动，以其快节奏、高比分和惊人的身体对抗而著称。
+下面为你做一份关于篮球的全面介绍。核心规则与目标篮球比赛的目标很简单：在遵守规则的前提下，将球投入对方的篮筐（球框），得分多者获胜。比赛人数：每队上场5人。一场NBA比赛每队最多可报名15人，轮换使用。比赛时间：NBA：共48分钟，分4节，每节12分钟。
+国际篮联：共40分钟，分4节，每节10分钟。如果常规时间打平，则进行5分钟（NBA）或5分钟（FIBA）的加时赛，直到分出胜负。 哉诤纫诿轮谀热饺俟迫
+welcome jdb电子夺宝【排名tg：@boheseo】【代做tg：@boheseo】
+welcome jdb电子夺宝【排名tg：@boheseo】【代做tg：@boheseo】
+【外推代做tg：@boheseo】welcome jdb电子夺宝【排名tg：@boheseo】【代做tg：@boheseo】
+【蜘蛛代引tg：@boheseo】welcome jdb电子夺宝【排名tg：@boheseo】【代做tg：@boheseo】
+https://github.com/appledevel/lhvtgp/commit/54307ef38c8c0172817ba1d9012feb10fd59f0a7
+https://github.com/appledevel/lhvtgp/blob/main/78%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%9B%BE%E7%89%87%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/soornes/nqzxef/commit/011287ca3313dce33b79b8536fc9e1da3400cadf
+https://github.com/soornes/nqzxef/blob/main/61%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E8%BD%AF%E4%BB%B6%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/unimifoc/vfirkn/commit/b12adb2ef7021ecdf07bf37d3d598b48a97d63b1
+https://github.com/unimifoc/vfirkn/blob/main/97%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E6%80%8E%E4%B9%88%E7%8E%A9%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/rbpula/sesvoj/commit/8e43a33343192afa5f0ceb4c253aca6695f9f267
+https://github.com/rbpula/sesvoj/blob/main/85%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E7%A0%B4%E8%A7%A3%E7%89%88%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/schancara1593/xlpxgz/commit/30ddd923aa4e4cd4cfc219904b08564aa50f61ec
+https://github.com/schancara1593/xlpxgz/blob/main/80%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%B9%B3%E5%8F%B0%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/seamumdigiall/uogpck/commit/17a675be668e2fdddc6400ff4beab0251f78cea6
+https://github.com/seamumdigiall/uogpck/blob/main/48%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E6%A8%A1%E6%8B%9F%E5%99%A8%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/sebitapaar/tmewds/commit/1a1ab3174960d16b4e43c57daa86d32b6cf1e78f
+https://github.com/sebitapaar/tmewds/blob/main/16%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%BD%95%E5%B1%8F%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/jioglidio/ukxqjc/commit/2ccdc8a90106e2f9109999dc4157522139c686a5
+https://github.com/jioglidio/ukxqjc/blob/main/86%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%85%8D%E8%B4%B9%E7%89%88%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/estdej/quvtzc/commit/eaa0b7c23a58648ca7040f8cf50166fcd226ee89
+https://github.com/estdej/quvtzc/blob/main/52%EF%BC%9APG%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E6%8A%80%E5%B7%A7%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/ablen-anderson/oiorkd/commit/f7bf65e2bba2f59aeaea56538f344a2431c6bec6
+https://github.com/ablen-anderson/oiorkd/blob/main/31%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%8D%A1%E5%A4%BA%E5%AE%9D%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/unimifoc/vfirkn/commit/bef664997fbb9e5c591f46e09b9e4d04f6e8e50e
+https://github.com/unimifoc/vfirkn/blob/main/84%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%AE%98%E7%BD%91%E7%89%88%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/appledevel/lhvtgp/commit/609716801710eb04c6bbd3563da75a642e035417
+https://github.com/appledevel/lhvtgp/blob/main/08%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%AE%98%E7%BD%91%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/soornes/nqzxef/commit/c8e2533cf0af356b46545cf7d9d4bed8e4a1f8ed
+https://github.com/soornes/nqzxef/blob/main/28%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%88%86%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/rbpula/sesvoj/commit/5601de34285c3edcd612ee6e6d677d9c878bfd56
+https://github.com/rbpula/sesvoj/blob/main/64%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E7%88%86%E5%88%86%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/schancara1593/xlpxgz/commit/ba88bf49b7eae200d091630a278e28d1e682ae23
+https://github.com/schancara1593/xlpxgz/blob/main/27%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E7%88%86%E5%A4%A7%E5%A5%96%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/seamumdigiall/uogpck/commit/4e8948974f0991f75cb8c37e4b464191d739feab
+https://github.com/seamumdigiall/uogpck/blob/main/79%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/jioglidio/ukxqjc/commit/6c6ee4f7dfdda78e190430d8539c0f586161065b
+https://github.com/jioglidio/ukxqjc/blob/main/67%EF%BC%9Apg%E7%83%AD%E9%97%A8%E6%B8%B8%E6%88%8F%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/sebitapaar/tmewds/commit/b904bba277a65b12c30e92575be50c256fcd195c
+https://github.com/sebitapaar/tmewds/blob/main/01%EF%BC%9Apg%E8%B5%8F%E9%87%91%E8%88%B9%E9%95%BF%E6%94%BB%E7%95%A5%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/ablen-anderson/oiorkd/commit/a7bd7d4ee625966e897eedaac2007e67467d3cdc
+https://github.com/ablen-anderson/oiorkd/blob/main/75%EF%BC%9Apg%E9%BA%92%E9%BA%9F%E9%80%81%E5%AE%9D%E7%94%B5%E5%AD%90%E7%BD%91%E7%AB%99%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/estdej/quvtzc/commit/fbb3b41b0fcf7d2c5a4e65c864c4c06951d4cb2e
+https://github.com/estdej/quvtzc/blob/main/31%EF%BC%9Apg%E5%B9%B3%E5%8F%B0%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E5%87%A0%E5%BC%A0%E7%89%8C%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/unimifoc/vfirkn/commit/d9fb5fc5a8a97053dd332ea70129eeb194a74665
+https://github.com/unimifoc/vfirkn/blob/main/91%EF%BC%9Apg%E6%A8%A1%E6%8B%9F%E5%99%A8%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E8%AF%95%E7%8E%A9%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/appledevel/lhvtgp/commit/3f00b6c447f5768bfbe9cca4de55ab5fd9ae36a5
+https://github.com/appledevel/lhvtgp/blob/main/84%EF%BC%9Apg%E5%B9%B3%E5%8F%B0%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%9C%89%E5%93%AA%E4%BA%9B%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/sebitapaar/tmewds/commit/fc0b231fd3c62a6d8d22cb3e71c28d368837eed8
+https://github.com/sebitapaar/tmewds/blob/main/73%EF%BC%9Apg%E5%B9%B3%E5%8F%B0%E7%94%B5%E5%AD%90%E6%B8%B8%E6%88%8F%E6%80%8E%E4%B9%88%E7%8E%A9%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/soornes/nqzxef/commit/e16aaad4a4242b4bd548b6ab127558e06e5305c8
+https://github.com/soornes/nqzxef/blob/main/78%EF%BC%9Apg%E5%B9%B3%E5%8F%B0%E9%BA%BB%E5%B0%86%E8%83%A1%E4%BA%86%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
+https://github.com/rbpula/sesvoj/commit/3981bea54b0f8b71ed61a9ee01bfc477088cbf15
+https://github.com/rbpula/sesvoj/blob/main/05%EF%BC%9Apg%E5%B9%B3%E5%8F%B0%E7%94%B5%E5%AD%90%E6%8F%90%E7%8E%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%B2%B1%E5%8F%91tg%40boheseo%E4%B8%A8.md
